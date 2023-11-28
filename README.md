@@ -14,3 +14,7 @@ Cpf: 06272793000184
 email: informatica@lorencini.com.br
 
 Senha: 123456
+
+DESPESAS
+
+https://www.facebook.com/groups/1065396000300437/user/100031331052888/
